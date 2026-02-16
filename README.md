@@ -5,3 +5,5 @@ I'd rather be associated with people who take things like grooming and other all
 I am still openly proship but no longer near the tree for obvious reasons.
 
 Respectfully fuck off and never interact with me again.
+
+Edit (16/2/2026): If we were friends before the whole drama thing happened then youre safe to interact. Just know i wont be near the tree anymore.
