@@ -1,11 +1,10 @@
-Alrighty theen, it's been a while since i wrote this page and i feel alot calmer now so i'll go ahead and clarify some of this.
+Alrighty theen, it's been a while since i wrote this page and i feel alot calmer now so i'll go ahead and clarify some of this. 
 
-I wrote this during an episode after the whole situation exploded. Some members of the proship tree did take the right action on removing sal from everywhere but i saw some members (not alot but there were there) who joined in on making fun of Sal
+I wrote this during an episode after the whole situation exploded. **Some** members of the proship tree did take the right action on removing sal from everywhere but i saw some members (not alot but there were there) who joined in on making fun of Sal
 I hate sal now, and i will always hate sal for being a groomer but what i wont support is people using these types of things and using it as a gotcha and make fun of people in it.I was groomed multiple times and personally i'd feel uncomfortable if i saw people making fun of someone else regardless if theyre my groomer or not. I also got told off by someone for not wanting to be a part of this whole thing regardless of sides.
-I still stand with the victim, i will always stand with victims in these situations but what i wont tolerate is harrassment of both the abuser and the people witnessing the drama.
+I still stand with the victim, i will always stand with victims in these situations but what i wont tolerate is harrassment of both the abuser and the people witnessing the drama. Harriassing the abuser just makes them believe they were in the right even more and it'll possibly make them continue this behavior and its why i don't tolerate it.
 
-I distanced myself from the tree as a whole because i felt uncomfortable due to the whole thing being fresh and cause of the bit of betrayal of discovering my friend was a groomer.
-
+I only distanced myself from the tree as a whole because i felt uncomfortable due to the whole thing being fresh and cause of the bit of betrayal of discovering my friend was a groomer.
 I do plan on going back to the tree. Drama or no drama the tree will always be my home and i sincerely apologize if it made it seem like i hated every single one of you. I love you guys to bits 🫂/p
 
 I'll leave the original statement below for archive reasons.
